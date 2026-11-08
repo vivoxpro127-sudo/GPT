@@ -1,1 +1,1 @@
-ChatGPT
+For ChatGPT
